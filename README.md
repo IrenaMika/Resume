@@ -1,4 +1,4 @@
-![Alt text]https://sun9-41.userapi.com/impg/2NtyZDIp91KHwY3XEuC96zb4n9zhV-HmpirBxQ/9PVxpnOJ_Yc.jpg?size=2560x1152&quality=95&sign=f3157399f3798932dbf719bb2ceb8459&type=album
+![Alt text]![image](https://github.com/IrenaMika/Resume/assets/141070426/3174bb41-58fe-46cd-ba0c-a755fa207e0c)
 
 Начну с имени, меня зовут **Ирина**, учусь в университете на специальность, по которой не хочу работать дальше.
 
