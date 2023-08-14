@@ -1,4 +1,4 @@
-![Alt text]![image](https://github.com/IrenaMika/Resume/assets/141070426/3174bb41-58fe-46cd-ba0c-a755fa207e0c)
+![image](https://github.com/IrenaMika/Resume/assets/141070426/3174bb41-58fe-46cd-ba0c-a755fa207e0c)
 
 Начну с имени, меня зовут **Ирина**, учусь в университете на специальность, по которой не хочу работать дальше.
 
